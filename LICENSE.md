@@ -1,4 +1,4 @@
-
+Get the ultimate ClickUp for macOS integration with top Integration for ClickUp for macOS - cloud backup and OCR scanning. Featuring cloud backup and OCR scanning, it's the best
 
 
 
